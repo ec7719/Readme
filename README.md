@@ -16,7 +16,7 @@
 - 📫 How to reach me **ec7719@srmist.edu.in**
 
 - ⚡ Fun fact **I think I am a graviton**
--  My interaction is 8x106-65
+-  My interaction is 8x10^-65
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
