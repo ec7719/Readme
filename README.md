@@ -14,9 +14,8 @@
 - 💬 Ask me about **BLENDER,UNITY,PHOTOSHOP,ILLUSTRATOR,LIGHT ROOM**
 
 - 📫 How to reach me **ec7719@srmist.edu.in**
-
-- ⚡ Fun fact **I think I am a graviton**
--  My interaction is 8x10^-65
+- 
+-Time is relative ..... take nice long look at my Github profile
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
