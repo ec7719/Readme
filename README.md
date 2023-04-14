@@ -18,6 +18,7 @@
 -Time is relative ..... take nice  look at my Github profile
 
 <h3 align="left">Connect with me:</h3>
+https://www.instagram.com/_chris_.parker_/
 <p align="left">
 </p>
 
