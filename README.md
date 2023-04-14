@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **ec7719@srmist.edu.in**
 - 
--Time is relative ..... take nice long look at my Github profile
+-Time is relative ..... take nice  look at my Github profile
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
