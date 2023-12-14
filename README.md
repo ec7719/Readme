@@ -16,7 +16,7 @@
 - 💬 Ask me about **BLENDER,UNITY,PHOTOSHOP,ILLUSTRATOR,LIGHT ROOM**
 
 - 📫 How to reach me **ec7719@srmist.edu.in**
-- 
+  
 -Time is relative ..... take nice  look at my Github profile
 
 <h3 align="left">Connect with me:</h3>
